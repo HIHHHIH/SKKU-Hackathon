@@ -1,5 +1,4 @@
 메타버스 플레이 링크 https://www.roblox.com/games/10965676197/SKKU-2398
-
 <br/><br/>
 두번째 로블록스 개발 프로젝트
 
